@@ -1,3 +1,3 @@
 - Oriana Isabel Bellorin Mata
 - Legajo: 213215-1
-https://i0.wp.com/imgs.hipertextual.com/wp-content/uploads/2015/10/giphy1.gif?fit=500%2C312&quality=50&strip=all&ssl=1
+- ![image](https://github.com/OrianaIsabel/OrianaIsabel/assets/164410496/d85fd6a8-2203-45b1-ae81-8867f81100d7)
